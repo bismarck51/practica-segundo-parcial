@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... I DON'T KNOW YET XD
 - 🌱 I’m currently learning ... WEB PROGRAMMING
 - 💞️ I’m looking to collaborate on ... AREA51
-- 📫 How to reach me ... WEB PROGRAMMING
+- 📫 How to reach me ... YOU CAN'T SORRY
 - 😄 Pronouns: ... ABI
 - ⚡ Fun fact: ... I STAY ANONYMOUS
 
